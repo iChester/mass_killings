@@ -2,22 +2,22 @@
 
 ## Overview
 
-The mass killings of Ukrainian citizens by the Russian invading troops is nothing less than *planned extermination act towards the most active group of Ukrainian society*.
+The mass killings of Ukrainian citizens by Russian invading troops is nothing less than a *foreplanned extermination act against the most active social class of Ukrainian society*.
 
-Russians were incited for such social purges, as a result of years of the Russian state propaganda and their constant modus operandi [^1] in Ukraine [(see below)](Cleansing.md#%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%B2%D0%BD%D0%B0-%D0%BF%D1%80%D0%BE%D0%BF%D0%B0%D0%B3%D0%B0%D0%BD%D0%B4%D0%B0-%D0%B2-%D1%80%D1%84).
+The "drive" of Russians for such social purges is, in particular, the result of many years of state propaganda in Russia and the invariability of their modus operandi [^1] in Ukraine [(see below)](Cleansing.md#%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%B2%D0%BD%D0%B0-%D0%BF%D1%80%D0%BE%D0%BF%D0%B0%D0%B3%D0%B0%D0%BD%D0%B4%D0%B0-%D0%B2-%D1%80%D1%84).
 
-⚠️ *The document will be updated as new data will come.*
+⚠️ *The document will be getting updated and supplemented as new data is received and processed.*
 
-## Evidences
+## Evidence
 
-### Executions similarity
+### Uniformity of execution patterns
 
-The similarity and uniformity of executions point to same methodology. Different people in different places were executed in the similar manner.
+Similarity and uniformity of the executions of different people in different settlements indicate that they were carried out in accordance with a single methodology.
 
-A few patterns can be found among the mass killings of civilians in the Kyiv region:
+A few patterns can be found among the mass killings of civilians in Kyivska oblast (Kyiv region):
 
-- the vast majority are military-age males;
-- with their hands tied behind their backs and shot in the back of their heads.
+- the vast majority of execution victims were men of conscription age (aged 18 to 60);
+- the victims had their hands tied behind their backs and bullet holes in the back of their heads.
 
 Given the relative humanity of the method of execution (the brain is destroyed before a person can feel the pain), the SBU was consulted on the existence of methodological literature that can describe it.
 
