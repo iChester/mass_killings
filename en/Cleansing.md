@@ -4,7 +4,7 @@
 
 The mass killings of Ukrainian citizens by Russian invading troops is nothing less than a *foreplanned extermination act against the most active social class of Ukrainian society*.
 
-The "drive" of Russians for such social purges is, in particular, the result of many years of state propaganda in Russia and the invariability of their modus operandi [^1] in Ukraine [(see below)](Cleansing.md#%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%B2%D0%BD%D0%B0-%D0%BF%D1%80%D0%BE%D0%BF%D0%B0%D0%B3%D0%B0%D0%BD%D0%B4%D0%B0-%D0%B2-%D1%80%D1%84).
+The "drive" of Russians for such social purges is, in particular, the result of many years of state propaganda in Russia and the invariability of their modus operandi[^1] in Ukraine [(see below)](Cleansing.md#%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%B2%D0%BD%D0%B0-%D0%BF%D1%80%D0%BE%D0%BF%D0%B0%D0%B3%D0%B0%D0%BD%D0%B4%D0%B0-%D0%B2-%D1%80%D1%84).
 
 ⚠️ *The document will be getting updated and supplemented as new data is received and processed.*
 
